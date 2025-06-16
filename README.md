@@ -1,2 +1,4 @@
-# ai assistant
-ai assitatnt.... more like my secornd brain
+# AI assistant
+AI assistant.... more like my second brain
+
+```i don't wanna talk much about it```
