@@ -5,3 +5,5 @@ AI assistant.... more like my second brain
 
 
 *Well, I might write something about it when I'm finished with it*
+
+it is so much messy and only can be understood by me so yeah not even trying to make it clean and user friendly.
